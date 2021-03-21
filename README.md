@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @crisstrock
+- 👀 I’m interested in software delevelopers job
+- 🌱 I’m currently learning software engineer
+- 💞️ I’m looking to collaborate on the future
+- 📫 How to reach me phone number 9611835441
